@@ -19,4 +19,5 @@ Now that technology is taking over there are likely to be those who will hinder 
 I would like to close my "essay" with the teaching of a great well known master about everything that was stated, which is: "A good teacher does not teach you the poetry, a good teacher teaches you to become a poet".
 
 Thank you,
+
 Rat431
